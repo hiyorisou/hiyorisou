@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![kroomie](https://media.discordapp.net/attachments/815298099685752846/1247840304632168529/RDT_20240605_0914303107564141191153207.jpg?ex=66978ad8&is=66963958&hm=ab5375226a61e6f19ccdd1c0dc4920c0957eeee0dbb16553290048c34947b86b&=&format=webp&width=1073&height=603)
+![kroomie](https://shinywinny.carrd.co/assets/images/image02.png?v=b7ba5e93)
